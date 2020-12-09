@@ -1,0 +1,1 @@
+you need the items which are : 1 nimbu  , 2 cup of water , 1 tsp sugar , salt to taste 
